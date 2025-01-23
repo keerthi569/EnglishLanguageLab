@@ -1,3 +1,4 @@
+How to Improve Your Vocabulary with English Language Lab
 Introduction
 The English Language Lab Software offers an interactive method to enhance vocabulary, enhancing communication, academic excellence, and writing skills in today’s competitive world.
 
